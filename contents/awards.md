@@ -1,3 +1,3 @@
-- 校级一等奖学金, 2022.  
+- “千里杯”船模竞速赛一等奖，2024
 
-- Outstanding Graduation Thesis, XXX University, 2023. 
+- 新生军训歌神，2024
